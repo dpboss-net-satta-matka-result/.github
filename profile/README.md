@@ -1,12 +1,9 @@
 ## Hi there 👋
 
-<!--
+###  - यहाँ देखें 👉👉 [कल्याण फिक्स अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 👈👈
 
-**Here are some ideas to get you started:**
+### - यहाँ देखें 👉👉 [कल्याण रिजल्ट लाइव ](https://www.google.com/search?q=hindipanti+in+kalyan+fix) 👈👈
 
-🙋‍♀️ A short introduction - what is your organization all about?
-🌈 Contribution guidelines - how can the community get involved?
-👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
-🍿 Fun facts - what does your team eat for breakfast?
-🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
--->
+### - यहाँ देखें 👉👉 [कल्याण फाइनल अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 👈👈
+
+---
